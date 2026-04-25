@@ -6,7 +6,7 @@
 
 ## Cool/Effective Campaign
 
-1. Master's Union Campaign :: very nice font + convincing agruements.
+1. Master's Union Campaign :: https://www.youtube.com/@MastersUnion :: very nice font + convincing agruements.
 
 ## Cool-Video-Edit-Sequences
 
